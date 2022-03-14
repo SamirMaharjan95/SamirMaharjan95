@@ -1,6 +1,6 @@
 ### Hi there 👋   
-I usually write at  : http://maharjansamir.com.np  
-🕸 **Finding me 👉 http://maharjansamir.com.np** 🕸  
+I usually write at  : https://maharjansamir.com.np  
+🕸 **Finding me 👉 https://maharjansamir.com.np** 🕸  
 <br>  
 ### Some of my works  
 <br><br>
