@@ -8,7 +8,6 @@ I usually write at  : https://maharjansamir.com.np
 <img src="https://media.giphy.com/media/iY8CRBdQXODJSCERIr/giphy.gif" width="30px">&nbsp;***About me ....***
 
 ✔ Callme: ***He/His*** or ***TeamWorker*** 😊 <br>
-✔ I’m currently trainer and freelancer for various companies<br>
 ✔ I’m currently learning about **C#.net MVC framework**🥰<br>
 ✔ I’m looking to collaborate with any **C#.net knowledge**<br>
 ✔ Ask from me anything you want, If I am alive I will answer for sure 😉<br>
